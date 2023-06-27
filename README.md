@@ -1,1 +1,1 @@
-not yet to be a best developer 
+not yet to be a best developer .
